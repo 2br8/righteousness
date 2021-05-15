@@ -1,4 +1,5 @@
 
+
 # Righteousness
 No Authority except God The Most Just.
 ## Why authority is the most important thing to do right?
@@ -28,11 +29,11 @@ Remember what caused Adam to be expelled from heaven.
 #### So giving any scope or consider any other as authority even partially will make us do wrong. 
 
 Prophets never stated any wrong or mixed content claiming any authority like shatan. Rather they just
-passed the decrees as it is. So following them is following God. Now there is no prohpet but we are blessed we have
+passed the decrees as it is. So following them is following God. Now there is no prophet but we are blessed we have
 God's decrees compiled among us intact. 
-#### Should we allow any other contents (in the name of prophet or in the name of so called proven preserving methodology) that may create scopes to mixup with decrees and become a false authority? 
+#### Should we allow any other contents (in the name of prophet or in the name of so called proven preserving methodology) that may create scopes to mix-up with decrees and become a false authority? 
 Is it not like creating a backdoor willingly for the shatan so that he can play with decrees and create false authority by giving false meaning to them. 
-#### Better we look first is there any decree given by God to peserve life style or day to day converstaions of Prophets. If this is not than definitely we are not following the God's Authority but inclining toward a false authority again. 
-In short who permitted to peserve life style or day to day converstaions of Prophets? If not God, we deny all other authority. 
+#### Better we look first is there any decree given by God to preserve life style or day to day conversations of Prophets. If this is not than definitely we are not following the God's Authority but inclining toward a false authority again. 
+In short who permitted to preserve life style or day to day conversations of Prophets? If not God, we deny all other authority. 
 
 
