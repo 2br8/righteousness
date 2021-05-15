@@ -12,7 +12,7 @@ Remember what caused Adam for the first time slip from doing the right thing.
 > therefrom in [ease and] abundance from wherever you will. But do not
 > approach this tree, lest you be among the wrongdoers."
  
-#### But Shatan appeared to Adam with a false claim of some authority to guide (shall I direct) him to eternity:  
+#### But Shatan appeared to Adam with a false claim of some authority to guide him to eternity:  
 
 *[20:120] Sahih International*
 > Then Satan whispered to him; he said, "O Adam, shall I direct you to
