@@ -3,7 +3,7 @@
 # Righteousness
 No Authority except God The Most Just.
 ## Why authority is the most important thing to do right?
-Remember what caused Adam to be expelled from heaven.
+Remember what caused Adam for the first time slip from doing the right thing. 
 
 #### The first decree upon Adam (from his only Authority God) was:
 
