@@ -30,7 +30,7 @@ Remember what caused Adam to be expelled from heaven.
 Prophets never stated any wrong or mixed content claiming any authority like shatan. Rather they just
 passed the decrees as it is. So following them is following God. Now there is no prohpet but we are blessed we have
 God's decrees compiled among us intact. 
-#### Should we allow any other contents (in the name of prophet or in the name of so called proven peserving methodology) that may create scopes to mixup with decree and become a false authority? 
+#### Should we allow any other contents (in the name of prophet or in the name of so called proven preserving methodology) that may create scopes to mixup with decrees and become a false authority? 
 Is it not like creating a backdoor willingly for the shatan so that he can play with decrees and create false authority by giving false meaning to them. 
 #### Better we look first is there any decree given by God to peserve life style or day to day converstaions of Prophets. If this is not than definitely we are not following the God's Authority but inclining toward a false authority again. 
 In short who permitted to peserve life style or day to day converstaions of Prophets? If not God, we deny all other authority. 
